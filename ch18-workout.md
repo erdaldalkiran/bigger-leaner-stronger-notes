@@ -30,11 +30,11 @@ Calf Workout A
 =>Rest 3 to 4 minutes in between these sets
 
 #Day2 Back & ABS
-Barbell Deadlift - Warm-up sets and then 3 working sets  
+Barbell Deadlift - Warm-up sets and then 3 working sets 50kg  
 https://www.youtube.com/watch?v=-4qRntuXBSc
 Common mistakes: https://www.youtube.com/watch?v=MDuXuUg15mk  
 
-Barbell Row - 3 working sets  
+Barbell Row - 3 working sets 45kg  
 https://www.youtube.com/watch?v=9efgcAjQe7E
 
 Wide-Grip Pull-Up or Chin-Up - 3 working sets (weighted if possible)
@@ -43,10 +43,10 @@ Wide-Grip Pull-Up or Chin-Up - 3 working sets (weighted if possible)
 Wide-Grip Pull-Up: https://www.youtube.com/watch?v=iqEaeXtGu9M  
 Chin-Up: https://www.youtube.com/watch?v=c8G0_NEJ-yA
 
-Optional: Close-Grip Lat Pulldown - 3 working sets  
+Optional: Close-Grip Lat Pulldown - 3 working sets 52kg    
 https://www.youtube.com/watch?v=ecRF8ERf2q4
 
-Optional: Barbell Shrugs - 2 working sets  
+Optional: Barbell Shrugs - 2 working sets 35kg  
 https://www.youtube.com/watch?v=NAqCVe2mwzM
 
 3 to 6 ab circuits  
