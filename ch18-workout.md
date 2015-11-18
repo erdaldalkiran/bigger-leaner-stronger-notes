@@ -37,8 +37,8 @@ Common mistakes: https://www.youtube.com/watch?v=MDuXuUg15mk
 Barbell Row - 3 working sets 45kg  
 https://www.youtube.com/watch?v=9efgcAjQe7E
 
-Wide-Grip Pull-Up or Chin-Up - 3 working sets (weighted if possible)
-*Wider the grip, harder its gonna get  
+Wide-Grip Pull-Up or Chin-Up - 3 working sets (weighted if possible)  
+*Wider the grip, harder its gonna get   
 *Chin-up is better for beginners  
 Wide-Grip Pull-Up: https://www.youtube.com/watch?v=iqEaeXtGu9M  
 Chin-Up: https://www.youtube.com/watch?v=c8G0_NEJ-yA
