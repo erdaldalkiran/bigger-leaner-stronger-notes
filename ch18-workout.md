@@ -62,13 +62,30 @@ https://www.youtube.com/watch?v=XKwNk-FBd0k
 
 
 #Day3 Shoulder & Calves
-Seated or Standing Barbell Military Press - Warm-up sets and then 3 working sets  
+Seated or Standing Barbell Military Press - Warm-up sets and then 3 working sets 35kg   
 seated: https://www.youtube.com/watch?v=uiYOYMDiA44  
 
-Side Lateral Raise - 3 working sets  
+Side Lateral Raise - 3 working sets 5kg  
 https://www.youtube.com/watch?v=3VcKaXpzqRo  
 
-Bent-Over Rear Delt Raise - 3 working sets  
+Bent-Over Rear Delt Raise - 3 working sets 5kg  
 https://www.youtube.com/watch?v=ttvfGg9d76c  
 
-Calf Workout B    
+Calf Workout B  
+
+#Day4 Upper Body & Abs
+Incline Barbell Bench Press - Warm-up sets and then 3 sets to 8-10 reps  
+
+Barbell Curl - 3 working sets  
+https://www.youtube.com/watch?v=LY1V6UbRHFM  
+
+Close-Grip Bench Press - 3 working sets  
+https://www.youtube.com/watch?v=nEF0bv2FW94  
+
+Alternating Dumbbell Curl - 3 working sets  
+https://www.youtube.com/watch?v=sAq_ocpRh_I  
+
+Seated Triceps Press - 3 working sets  
+https://www.youtube.com/watch?v=hLOl4nJlo0I  
+
+3 to 6 abs circuit
