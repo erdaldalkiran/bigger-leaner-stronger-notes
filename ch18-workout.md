@@ -10,9 +10,18 @@ https://www.youtube.com/watch?v=JbyjNymZOt0
 ##Calf Workout B
 Leg Press Calf Raise - 3 sets 8 - 10 reps  
 https://www.youtube.com/watch?v=ul-zHYYe90c  
+
 Donkey Calf Raise (or Leg Press Calf Raise) - 3 sets of 8 to 10 reps  
 https://www.youtube.com/watch?v=aHOudYjiB9A  
+
 => Rest 1 to 2 minutes in between these sets
+
+##Calf Workout C
+Standing Calf Raise - 3 sets 12 - 15 reps     
+
+Seated Calf Raise - 3 sets 12 - 15 reps  
+
+=> Rest 1 minute in between these sets
 
 
 #Day1 Chest & Calves
@@ -74,18 +83,33 @@ https://www.youtube.com/watch?v=ttvfGg9d76c
 Calf Workout B  
 
 #Day4 Upper Body & Abs
-Incline Barbell Bench Press - Warm-up sets and then 3 sets to 8-10 reps  
+Incline Barbell Bench Press - Warm-up sets and then 3 sets to 8-10 reps - 10kg    
 
-Barbell Curl - 3 working sets  
+Barbell Curl - 3 working sets - 20kg  
 https://www.youtube.com/watch?v=LY1V6UbRHFM  
 
-Close-Grip Bench Press - 3 working sets  
+Close-Grip Bench Press - 3 working sets - 10kg  
 https://www.youtube.com/watch?v=nEF0bv2FW94  
 
-Alternating Dumbbell Curl - 3 working sets  
+Alternating Dumbbell Curl - 3 working sets - 8kg  
 https://www.youtube.com/watch?v=sAq_ocpRh_I  
 
-Seated Triceps Press - 3 working sets  
+Seated Triceps Press - 3 working sets - 16kg  
 https://www.youtube.com/watch?v=hLOl4nJlo0I  
 
 3 to 6 abs circuit
+
+#Day5 Legs & Shoulders
+Barbell Squat - Warm-up sets and then 3 working sets  
+https://www.youtube.com/watch?v=SW_C1A-rejs
+
+Leg Press - 3 working sets  
+
+Romanian Deadlift - 3 working sets  
+https://www.youtube.com/watch?v=JCXUYuzwNrM  
+
+Side Literal Raise - 3 working sets in the 8 to 10 rep range  
+
+Bent-Over Rear Delt Raise - 3 working sets in the 8 to 10 rep range  
+
+Calf Workout C
