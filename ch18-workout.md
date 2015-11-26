@@ -23,6 +23,12 @@ Seated Calf Raise - 3 sets 12 - 15 reps 20kg
 
 => Rest 1 minute in between these sets
 
+##ABS Circuit  
+plank 1.5min  
+left plank 30 secs  
+right plank 30 secs  
+bicycle 30 reps  
+knee up 15 reps
 
 #Day1 Chest & Calves
 
@@ -85,19 +91,21 @@ Calf Workout B
 #Day4 Upper Body & Abs
 Incline Barbell Bench Press - Warm-up sets and then 3 sets to 8-10 reps - 10kg    
 
-Barbell Curl - 3 working sets - 20kg  
+Barbell Curl - 3 working sets - 6.25kg  
 https://www.youtube.com/watch?v=LY1V6UbRHFM  
 
-Close-Grip Bench Press - 3 working sets - 10kg  
+Close-Grip Bench Press - 3 working sets - 11.25kg  
 https://www.youtube.com/watch?v=nEF0bv2FW94  
 
 Alternating Dumbbell Curl - 3 working sets - 8kg  
+*Keep your elbow in front of your chest to get proper training  
 https://www.youtube.com/watch?v=sAq_ocpRh_I  
 
 Seated Triceps Press - 3 working sets - 16kg  
 https://www.youtube.com/watch?v=hLOl4nJlo0I  
 
-3 to 6 abs circuit
+3 to 6 abs circuit  
+
 
 #Day5 Legs & Shoulders
 Barbell Squat - Warm-up sets and then 3 working sets 15kg  
