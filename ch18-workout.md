@@ -36,21 +36,22 @@ Incline Barbell Bench Press - Warm-up sets and then 3 working sets 15kg
 *Get all the way down  
 https://www.youtube.com/watch?v=DbFgADa2PL8  
 
-Incline Dumbbell Bench Press - 3 working sets 16kg  
+Incline Dumbbell Bench Press - 3 working sets 18kg  
 *Nipple Line  
 https://www.youtube.com/watch?v=8iPEnn-ltC8
 
-Flat Barbell Bench Press - 3 working sets 15kg  
+Flat Barbell Bench Press - 3 working sets 16.25kg  
 *Keep your wrist straight  
 *Nipple Line  
 https://www.youtube.com/watch?v=rT7DgCr-3pg&list=PLQ-O9WlztAMcORQ5iXnEi_JpQz-DlLsoT&index=3
 
 Optional: Dip(Chest Variation) - 3 working sets (weighted if possible)  
-https://www.youtube.com/watch?v=EsM22ywpkpQ
+https://www.youtube.com/watch?v=EsM22ywpkpQ  
+=>Rest 3 to 4 minutes in between these sets  
 
 Calf Workout A
 
-=>Rest 3 to 4 minutes in between these sets
+
 
 #Day2 Back & ABS
 Barbell Deadlift - Warm-up sets and then 3 working sets 50kg  
@@ -111,9 +112,9 @@ https://www.youtube.com/watch?v=hLOl4nJlo0I
 Barbell Squat - Warm-up sets and then 3 working sets 15kg  
 https://www.youtube.com/watch?v=SW_C1A-rejs
 
-Leg Press - 3 working sets 35kg  
+Leg Press - 3 working sets 40kg  
 
-Romanian Deadlift - 3 working sets 45kg     
+Romanian Deadlift - 3 working sets 20kg     
 https://www.youtube.com/watch?v=JCXUYuzwNrM  
 
 Side Literal Raise - 3 working sets in the 8 to 10 rep range 5kg  
