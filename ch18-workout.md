@@ -8,7 +8,7 @@ https://www.youtube.com/watch?v=JbyjNymZOt0
 => Rest 2 to 3 minutes in between these sets  
 
 ##Calf Workout B
-Leg Press Calf Raise - 3 sets 8 - 10 reps  
+Leg Press Calf Raise - 3 sets 8 - 10 reps 50kg  
 https://www.youtube.com/watch?v=ul-zHYYe90c  
 
 Donkey Calf Raise (or Leg Press Calf Raise) - 3 sets of 8 to 10 reps  
@@ -78,13 +78,13 @@ https://www.youtube.com/watch?v=XKwNk-FBd0k
 
 
 #Day3 Shoulder & Calves
-Seated or Standing Barbell Military Press - Warm-up sets and then 3 working sets 35kg   
+Seated or Standing Barbell Military Press - Warm-up sets and then 3 working sets 12.5kg   
 seated: https://www.youtube.com/watch?v=uiYOYMDiA44  
 
-Side Lateral Raise - 3 working sets 5kg  
+Side Lateral Raise - 3 working sets 6kg  
 https://www.youtube.com/watch?v=3VcKaXpzqRo  
 
-Bent-Over Rear Delt Raise - 3 working sets 5kg  
+Bent-Over Rear Delt Raise - 3 working sets 6kg  
 https://www.youtube.com/watch?v=ttvfGg9d76c  
 
 Calf Workout B  
