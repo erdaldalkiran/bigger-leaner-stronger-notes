@@ -109,16 +109,16 @@ https://www.youtube.com/watch?v=hLOl4nJlo0I
 
 
 #Day5 Legs & Shoulders
-Barbell Squat - Warm-up sets and then 3 working sets 15kg  
+Barbell Squat - Warm-up sets and then 3 working sets 16.25kg  
 https://www.youtube.com/watch?v=SW_C1A-rejs
 
-Leg Press - 3 working sets 40kg  
+Leg Press - 3 working sets 45kg  
 
-Romanian Deadlift - 3 working sets 20kg     
+Romanian Deadlift - 3 working sets 22.5kg     
 https://www.youtube.com/watch?v=JCXUYuzwNrM  
 
 Side Literal Raise - 3 working sets in the 8 to 10 rep range 5kg  
 
-Bent-Over Rear Delt Raise - 3 working sets in the 8 to 10 rep range 4kg    
+Bent-Over Rear Delt Raise - 3 working sets in the 8 to 10 rep range 5kg    
 
 Calf Workout C
