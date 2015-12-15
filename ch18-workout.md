@@ -54,11 +54,11 @@ Calf Workout A
 
 
 #Day2 Back & ABS
-Barbell Deadlift - Warm-up sets and then 3 working sets 30kg  
+Barbell Deadlift - Warm-up sets and then 3 working sets 25kg  
 https://www.youtube.com/watch?v=-4qRntuXBSc  
 Common mistakes: https://www.youtube.com/watch?v=MDuXuUg15mk  
 
-Barbell Row - 3 working sets 21.25kg  
+Barbell Row - 3 working sets 22.5kg  
 https://www.youtube.com/watch?v=9efgcAjQe7E
 
 Wide-Grip Pull-Up or Chin-Up - 3 working sets (weighted if possible)  
