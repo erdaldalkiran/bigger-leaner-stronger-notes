@@ -78,11 +78,11 @@ https://www.youtube.com/watch?v=XKwNk-FBd0k
 
 
 #Day3 Shoulder & Calves
-Seated or Standing Barbell Military Press - Warm-up sets and then 3 working sets 12.5kg   
+Seated or Standing Barbell Military Press - Warm-up sets and then 3 working sets 10kg   
 seated: https://www.youtube.com/watch?v=uiYOYMDiA44  
 
-Side Lateral Raise - 3 working sets 6kg  
-https://www.youtube.com/watch?v=3VcKaXpzqRo  
+Side Lateral Raise - 3 working sets 4kg  
+https://www.youtube.com/watch?v=FeJP4E4Z-PY  
 
 Bent-Over Rear Delt Raise - 3 working sets 6kg  
 https://www.youtube.com/watch?v=ttvfGg9d76c  
