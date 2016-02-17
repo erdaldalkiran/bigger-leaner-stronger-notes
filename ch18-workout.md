@@ -54,11 +54,11 @@ Calf Workout A
 
 
 #Day2 Back & ABS
-Barbell Deadlift - Warm-up sets and then 3 working sets 20kg  
+Barbell Deadlift - Warm-up sets and then 3 working sets 21.25kg  
 https://www.youtube.com/watch?v=-4qRntuXBSc  
 Common mistakes: https://www.youtube.com/watch?v=MDuXuUg15mk  
 
-Barbell Row - 3 working sets 13.75kg  
+Barbell Row - 3 working sets 15kg  
 https://www.youtube.com/watch?v=9efgcAjQe7E
 
 Wide-Grip Pull-Up or Chin-Up - 3 working sets (weighted if possible)  
@@ -81,10 +81,10 @@ https://www.youtube.com/watch?v=XKwNk-FBd0k
 Seated or Standing Barbell Military Press - Warm-up sets and then 3 working sets 10kg   
 seated: https://www.youtube.com/watch?v=uiYOYMDiA44  
 
-Side Lateral Raise - 3 working sets 4kg  
+Side Lateral Raise - 3 working sets 5kg  
 https://www.youtube.com/watch?v=FeJP4E4Z-PY  
 
-Bent-Over Rear Delt Raise - 3 working sets 6kg  
+Bent-Over Rear Delt Raise - 3 working sets 7kg  
 https://www.youtube.com/watch?v=ttvfGg9d76c  
 
 Calf Workout B  
