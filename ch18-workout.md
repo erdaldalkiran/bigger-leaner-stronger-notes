@@ -2,7 +2,7 @@
 Standing Calf Raise - 3 sets of 4 to 6 reps 100kg  
 https://www.youtube.com/watch?v=FL-ybHijnyw
 
-Seated Calf Raise - 3 sets of 4 to 6 reps 35kg  
+Seated Calf Raise - 3 sets of 4 to 6 reps 55kg  
 https://www.youtube.com/watch?v=JbyjNymZOt0
 
 => Rest 2 to 3 minutes in between these sets  
@@ -54,11 +54,11 @@ Calf Workout A
 
 
 #Day2 Back & ABS
-Barbell Deadlift - Warm-up sets and then 3 working sets 21.25kg  
+Barbell Deadlift - Warm-up sets and then 3 working sets 22.5kg  
 https://www.youtube.com/watch?v=-4qRntuXBSc  
 Common mistakes: https://www.youtube.com/watch?v=MDuXuUg15mk  
 
-Barbell Row - 3 working sets 15kg  
+Barbell Row - 3 working sets 17.5kg  
 https://www.youtube.com/watch?v=9efgcAjQe7E
 
 Wide-Grip Pull-Up or Chin-Up - 3 working sets (weighted if possible)  
@@ -67,10 +67,10 @@ Wide-Grip Pull-Up or Chin-Up - 3 working sets (weighted if possible)
 Wide-Grip Pull-Up: https://www.youtube.com/watch?v=iqEaeXtGu9M  
 Chin-Up: https://www.youtube.com/watch?v=c8G0_NEJ-yA
 
-Optional: Close-Grip Lat Pulldown - 3 working sets 50kg      
+Optional: Close-Grip Lat Pulldown - 3 working sets 55kg      
 https://www.youtube.com/watch?v=ecRF8ERf2q4
 
-Optional: Barbell Shrugs - 2 working sets 14kg  
+Optional: Barbell Shrugs - 2 working sets 30kg  
 https://www.youtube.com/watch?v=NAqCVe2mwzM
 
 3 to 6 ab circuits  
