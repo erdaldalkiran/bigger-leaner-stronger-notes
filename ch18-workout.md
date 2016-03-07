@@ -17,7 +17,7 @@ https://www.youtube.com/watch?v=aHOudYjiB9A
 => Rest 1 to 2 minutes in between these sets
 
 ##Calf Workout C
-Standing Calf Raise - 3 sets 12 - 15 reps 73kg  
+Standing Calf Raise - 3 sets 12 - 15 reps 70kg  
 
 Seated Calf Raise - 3 sets 12 - 15 reps 20kg  
 
@@ -109,16 +109,16 @@ https://www.youtube.com/watch?v=hLOl4nJlo0I
 
 
 #Day5 Legs & Shoulders
-Barbell Squat - Warm-up sets and then 3 working sets 16.25kg  
+Barbell Squat - Warm-up sets and then 3 working sets 17.5kg  
 https://www.youtube.com/watch?v=SW_C1A-rejs
 
-Leg Press - 3 working sets 45kg  
+Leg Press - 3 working sets 50kg  
 
-Romanian Deadlift - 3 working sets 22.5kg     
+Romanian Deadlift - 3 working sets 25kg     
 https://www.youtube.com/watch?v=JCXUYuzwNrM  
 
 Side Literal Raise - 3 working sets in the 8 to 10 rep range 5kg  
 
-Bent-Over Rear Delt Raise - 3 working sets in the 8 to 10 rep range 5kg    
+Bent-Over Rear Delt Raise - 3 working sets in the 8 to 10 rep range 6kg    
 
 Calf Workout C
