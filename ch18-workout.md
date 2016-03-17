@@ -54,11 +54,11 @@ Calf Workout A
 
 
 #Day2 Back & ABS
-Barbell Deadlift - Warm-up sets and then 3 working sets 25kg  
+Barbell Deadlift - Warm-up sets and then 3 working sets 27.5kg  
 https://www.youtube.com/watch?v=-4qRntuXBSc  
 Common mistakes: https://www.youtube.com/watch?v=MDuXuUg15mk  
 
-Barbell Row - 3 working sets 17.5kg  
+Barbell Row - 3 working sets 18.75kg  
 https://www.youtube.com/watch?v=9efgcAjQe7E
 
 Wide-Grip Pull-Up or Chin-Up - 3 working sets (weighted if possible)  
@@ -67,10 +67,10 @@ Wide-Grip Pull-Up or Chin-Up - 3 working sets (weighted if possible)
 Wide-Grip Pull-Up: https://www.youtube.com/watch?v=iqEaeXtGu9M  
 Chin-Up: https://www.youtube.com/watch?v=c8G0_NEJ-yA
 
-Optional: Close-Grip Lat Pulldown - 3 working sets 55kg      
+Optional: Close-Grip Lat Pulldown - 3 working sets 60kg      
 https://www.youtube.com/watch?v=ecRF8ERf2q4
 
-Optional: Barbell Shrugs - 2 working sets 18kg  
+Optional: Barbell Shrugs - 2 working sets 20kg  
 https://www.youtube.com/watch?v=NAqCVe2mwzM
 
 3 to 6 ab circuits  
@@ -78,13 +78,13 @@ https://www.youtube.com/watch?v=XKwNk-FBd0k
 
 
 #Day3 Shoulder & Calves
-Seated or Standing Barbell Military Press - Warm-up sets and then 3 working sets 12.5kg   
+Seated or Standing Barbell Military Press - Warm-up sets and then 3 working sets 13.75kg   
 seated: https://www.youtube.com/watch?v=uiYOYMDiA44  
 
 Side Lateral Raise - 3 working sets 6kg  
 https://www.youtube.com/watch?v=FeJP4E4Z-PY  
 
-Bent-Over Rear Delt Raise - 3 working sets 7kg  
+Bent-Over Rear Delt Raise - 3 working sets 8kg  
 https://www.youtube.com/watch?v=ttvfGg9d76c  
 
 Calf Workout B  
