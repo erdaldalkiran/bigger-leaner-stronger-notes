@@ -19,7 +19,7 @@ https://www.youtube.com/watch?v=aHOudYjiB9A
 ##Calf Workout C
 Standing Calf Raise - 3 sets 12 - 15 reps 70kg  
 
-Seated Calf Raise - 3 sets 12 - 15 reps 20kg  
+Seated Calf Raise - 3 sets 12 - 15 reps 25kg  
 
 => Rest 1 minute in between these sets
 
@@ -36,11 +36,11 @@ Incline Barbell Bench Press - Warm-up sets and then 3 working sets 16.25kg
 *Get all the way down  
 https://www.youtube.com/watch?v=DbFgADa2PL8  
 
-Incline Dumbbell Bench Press - 3 working sets 18kg  
+Incline Dumbbell Bench Press - 3 working sets 20kg  
 *Nipple Line  
 https://www.youtube.com/watch?v=8iPEnn-ltC8
 
-Flat Barbell Bench Press - 3 working sets 17.5kg  
+Flat Barbell Bench Press - 3 working sets 18.75kg  
 *Keep your wrist straight  
 *Nipple Line  
 https://www.youtube.com/watch?v=rT7DgCr-3pg&list=PLQ-O9WlztAMcORQ5iXnEi_JpQz-DlLsoT&index=3
@@ -67,7 +67,7 @@ Wide-Grip Pull-Up or Chin-Up - 3 working sets (weighted if possible)
 Wide-Grip Pull-Up: https://www.youtube.com/watch?v=iqEaeXtGu9M  
 Chin-Up: https://www.youtube.com/watch?v=c8G0_NEJ-yA
 
-Optional: Close-Grip Lat Pulldown - 3 working sets 60kg      
+Optional: Close-Grip Lat Pulldown - 3 working sets 55kg      
 https://www.youtube.com/watch?v=ecRF8ERf2q4
 
 Optional: Barbell Shrugs - 2 working sets 20kg  
