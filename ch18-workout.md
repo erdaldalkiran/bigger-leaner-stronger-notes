@@ -97,7 +97,7 @@ Incline Barbell Bench Press - Warm-up sets and then 3 sets to 8-10 reps - 16.25k
 Barbell Curl - 3 working sets - 8.5kg*  
 https://www.youtube.com/watch?v=LY1V6UbRHFM  
 
-Close-Grip Bench Press - 3 working sets - 15kg  
+Close-Grip Bench Press - 3 working sets - 15kg*  
 https://www.youtube.com/watch?v=nEF0bv2FW94  
 
 Alternating Dumbbell Curl - 3 working sets - 10kg  
@@ -111,7 +111,7 @@ https://www.youtube.com/watch?v=hLOl4nJlo0I
 
 
 #Day5 Legs & Shoulders
-Barbell Squat - Warm-up sets and then 3 working sets 17.5kg  
+Barbell Squat - Warm-up sets and then 3 working sets 17.5kg*  
 https://www.youtube.com/watch?v=SW_C1A-rejs
 
 Leg Press - 3 working sets 50kg  
