@@ -11,6 +11,8 @@ https://www.youtube.com/watch?v=JbyjNymZOt0
 Leg Press Calf Raise - 3 sets 8 - 10 reps 50kg  
 https://www.youtube.com/watch?v=ul-zHYYe90c  
 
+Seated Calf Raise - 3 sets 8 - 10 reps 40kg  
+
 Donkey Calf Raise (or Leg Press Calf Raise) - 3 sets of 8 to 10 reps  
 https://www.youtube.com/watch?v=aHOudYjiB9A  
 
@@ -19,7 +21,7 @@ https://www.youtube.com/watch?v=aHOudYjiB9A
 ##Calf Workout C
 Standing Calf Raise - 3 sets 12 - 15 reps 70kg  
 
-Seated Calf Raise - 3 sets 12 - 15 reps 25kg  
+Seated Calf Raise - 3 sets 12 - 15 reps 30kg  
 
 => Rest 1 minute in between these sets
 
@@ -32,15 +34,15 @@ knee up 15 reps
 
 #Day1 Chest & Calves
 
-Incline Barbell Bench Press - Warm-up sets and then 3 working sets 16.25kg  
+Incline Barbell Bench Press - Warm-up sets and then 3 working sets 18.75kg  
 *Get all the way down  
 https://www.youtube.com/watch?v=DbFgADa2PL8  
 
-Incline Dumbbell Bench Press - 3 working sets 20kg  
+Incline Dumbbell Bench Press - 3 working sets 20kg*  
 *Nipple Line  
 https://www.youtube.com/watch?v=8iPEnn-ltC8
 
-Flat Barbell Bench Press - 3 working sets 18.75kg  
+Flat Barbell Bench Press - 3 working sets 20kg  
 *Keep your wrist straight  
 *Nipple Line  
 https://www.youtube.com/watch?v=rT7DgCr-3pg&list=PLQ-O9WlztAMcORQ5iXnEi_JpQz-DlLsoT&index=3
@@ -81,7 +83,7 @@ https://www.youtube.com/watch?v=XKwNk-FBd0k
 Seated or Standing Barbell Military Press - Warm-up sets and then 3 working sets 13.75kg   
 seated: https://www.youtube.com/watch?v=uiYOYMDiA44  
 
-Side Lateral Raise - 3 working sets 6kg  
+Side Lateral Raise - 3 working sets 7kg  
 https://www.youtube.com/watch?v=FeJP4E4Z-PY  
 
 Bent-Over Rear Delt Raise - 3 working sets 8kg  
@@ -90,19 +92,19 @@ https://www.youtube.com/watch?v=ttvfGg9d76c
 Calf Workout B  
 
 #Day4 Upper Body & Abs
-Incline Barbell Bench Press - Warm-up sets and then 3 sets to 8-10 reps - 13.75kg    
+Incline Barbell Bench Press - Warm-up sets and then 3 sets to 8-10 reps - 16.25kg    
 
-Barbell Curl - 3 working sets - 8.5kg  
+Barbell Curl - 3 working sets - 8.5kg*  
 https://www.youtube.com/watch?v=LY1V6UbRHFM  
 
-Close-Grip Bench Press - 3 working sets - 13.75kg  
+Close-Grip Bench Press - 3 working sets - 15kg  
 https://www.youtube.com/watch?v=nEF0bv2FW94  
 
 Alternating Dumbbell Curl - 3 working sets - 10kg  
 *Keep your elbow in front of your chest to get proper training  
 https://www.youtube.com/watch?v=sAq_ocpRh_I  
 
-Seated Triceps Press - 3 working sets - 20kg  
+Seated Triceps Press - 3 working sets - 22kg  
 https://www.youtube.com/watch?v=hLOl4nJlo0I  
 
 3 to 6 abs circuit  
@@ -114,7 +116,7 @@ https://www.youtube.com/watch?v=SW_C1A-rejs
 
 Leg Press - 3 working sets 50kg  
 
-Romanian Deadlift - 3 working sets 25kg     
+Romanian Deadlift - 3 working sets 27.5kg     
 https://www.youtube.com/watch?v=JCXUYuzwNrM  
 
 Side Literal Raise - 3 working sets in the 8 to 10 rep range 5kg  
