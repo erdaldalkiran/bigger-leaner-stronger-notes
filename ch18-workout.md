@@ -2,7 +2,7 @@
 Standing Calf Raise - 3 sets of 4 to 6 reps 100kg  
 https://www.youtube.com/watch?v=FL-ybHijnyw
 
-Seated Calf Raise - 3 sets of 4 to 6 reps 50kg  
+Seated Calf Raise - 3 sets of 4 to 6 reps 60kg  
 https://www.youtube.com/watch?v=JbyjNymZOt0
 
 => Rest 2 to 3 minutes in between these sets  
@@ -34,7 +34,7 @@ knee up 15 reps
 
 #Day1 Chest & Calves
 
-Incline Barbell Bench Press - Warm-up sets and then 3 working sets 18.75kg  
+Incline Barbell Bench Press - Warm-up sets and then 3 working sets 17.5kg  
 *Get all the way down  
 https://www.youtube.com/watch?v=DbFgADa2PL8  
 
@@ -42,7 +42,7 @@ Incline Dumbbell Bench Press - 3 working sets 20kg*
 *Nipple Line  
 https://www.youtube.com/watch?v=8iPEnn-ltC8
 
-Flat Barbell Bench Press - 3 working sets 20kg  
+Flat Barbell Bench Press - 3 working sets 18.75kg  
 *Keep your wrist straight  
 *Nipple Line  
 https://www.youtube.com/watch?v=rT7DgCr-3pg&list=PLQ-O9WlztAMcORQ5iXnEi_JpQz-DlLsoT&index=3
