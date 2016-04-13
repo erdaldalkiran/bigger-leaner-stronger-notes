@@ -72,7 +72,7 @@ Chin-Up: https://www.youtube.com/watch?v=c8G0_NEJ-yA
 Optional: Close-Grip Lat Pulldown - 3 working sets 55kg      
 https://www.youtube.com/watch?v=ecRF8ERf2q4
 
-Optional: Barbell Shrugs - 2 working sets 20kg  
+Optional: Barbell Shrugs - 2 working sets 18kg  
 https://www.youtube.com/watch?v=NAqCVe2mwzM
 
 3 to 6 ab circuits  
