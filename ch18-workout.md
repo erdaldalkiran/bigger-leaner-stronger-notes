@@ -111,7 +111,7 @@ https://www.youtube.com/watch?v=hLOl4nJlo0I
 
 
 #Day5 Legs & Shoulders
-Barbell Squat - Warm-up sets and then 3 working sets 18.75k*  
+Barbell Squat - Warm-up sets and then 3 working sets 18.75kg  
 https://www.youtube.com/watch?v=SW_C1A-rejs
 
 Leg Press - 3 working sets 50kg  
