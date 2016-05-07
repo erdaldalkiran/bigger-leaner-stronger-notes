@@ -11,7 +11,7 @@ https://www.youtube.com/watch?v=JbyjNymZOt0
 Leg Press Calf Raise - 3 sets 8 - 10 reps 50kg  
 https://www.youtube.com/watch?v=ul-zHYYe90c  
 
-Seated Calf Raise - 3 sets 8 - 10 reps 40kg  
+Seated Calf Raise - 3 sets 8 - 10 reps 45kg  
 
 Donkey Calf Raise (or Leg Press Calf Raise) - 3 sets of 8 to 10 reps  
 https://www.youtube.com/watch?v=aHOudYjiB9A  
@@ -80,13 +80,13 @@ https://www.youtube.com/watch?v=XKwNk-FBd0k
 
 
 #Day3 Shoulder & Calves
-Seated or Standing Barbell Military Press - Warm-up sets and then 3 working sets 13.75kg   
+Seated or Standing Barbell Military Press - Warm-up sets and then 3 working sets 15kg   
 seated: https://www.youtube.com/watch?v=uiYOYMDiA44  
 
 Side Lateral Raise - 3 working sets 7kg  
 https://www.youtube.com/watch?v=FeJP4E4Z-PY  
 
-Bent-Over Rear Delt Raise - 3 working sets 8kg  
+Bent-Over Rear Delt Raise - 3 working sets 9kg  
 https://www.youtube.com/watch?v=ttvfGg9d76c  
 
 Calf Workout B  
@@ -94,10 +94,10 @@ Calf Workout B
 #Day4 Upper Body & Abs
 Incline Barbell Bench Press - Warm-up sets and then 3 sets to 8-10 reps - 16.25kg    
 
-Barbell Curl - 3 working sets - 8.5kg*  
+Barbell Curl - 3 working sets - 10kg  
 https://www.youtube.com/watch?v=LY1V6UbRHFM  
 
-Close-Grip Bench Press - 3 working sets - 16.25kg
+Close-Grip Bench Press - 3 working sets - 17.5kg
 https://www.youtube.com/watch?v=nEF0bv2FW94  
 
 Alternating Dumbbell Curl - 3 working sets - 10kg  
