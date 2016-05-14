@@ -38,11 +38,11 @@ Incline Barbell Bench Press - Warm-up sets and then 3 working sets 18.75kg
 *Get all the way down  
 https://www.youtube.com/watch?v=DbFgADa2PL8  
 
-Incline Dumbbell Bench Press - 3 working sets 20kg*  
+Incline Dumbbell Bench Press - 3 working sets 22kg  
 *Nipple Line  
 https://www.youtube.com/watch?v=8iPEnn-ltC8
 
-Flat Barbell Bench Press - 3 working sets 18.75kg  
+Flat Barbell Bench Press - 3 working sets 20kg  
 *Keep your wrist straight  
 *Nipple Line  
 https://www.youtube.com/watch?v=rT7DgCr-3pg&list=PLQ-O9WlztAMcORQ5iXnEi_JpQz-DlLsoT&index=3
@@ -60,7 +60,7 @@ Barbell Deadlift - Warm-up sets and then 3 working sets 30kg
 https://www.youtube.com/watch?v=-4qRntuXBSc  
 Common mistakes: https://www.youtube.com/watch?v=MDuXuUg15mk  
 
-Barbell Row - 3 working sets 20kg*  
+Barbell Row - 3 working sets 21.25kg  
 https://www.youtube.com/watch?v=9efgcAjQe7E
 
 Wide-Grip Pull-Up or Chin-Up - 3 working sets (weighted if possible)  
@@ -69,7 +69,7 @@ Wide-Grip Pull-Up or Chin-Up - 3 working sets (weighted if possible)
 Wide-Grip Pull-Up: https://www.youtube.com/watch?v=iqEaeXtGu9M  
 Chin-Up: https://www.youtube.com/watch?v=c8G0_NEJ-yA
 
-Optional: Close-Grip Lat Pulldown - 3 working sets 55kg      
+Optional: Close-Grip Lat Pulldown - 3 working sets 60kg      
 https://www.youtube.com/watch?v=ecRF8ERf2q4
 
 Optional: Barbell Shrugs - 2 working sets 20kg  
@@ -116,7 +116,7 @@ https://www.youtube.com/watch?v=SW_C1A-rejs
 
 Leg Press - 3 working sets 50kg  
 
-Romanian Deadlift - 3 working sets 28.75kg     
+Romanian Deadlift - 3 working sets 30kg     
 https://www.youtube.com/watch?v=JCXUYuzwNrM  
 
 Side Literal Raise - 3 working sets in the 8 to 10 rep range 6kg  
