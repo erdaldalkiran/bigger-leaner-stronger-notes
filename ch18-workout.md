@@ -92,12 +92,12 @@ https://www.youtube.com/watch?v=ttvfGg9d76c
 Calf Workout B  
 
 #Day4 Upper Body & Abs
-Incline Barbell Bench Press - Warm-up sets and then 3 sets to 8-10 reps - 16.25kg    
+Incline Barbell Bench Press - Warm-up sets and then 3 sets to 8-10 reps - 17.5kg    
 
 Barbell Curl - 3 working sets - 10kg  
 https://www.youtube.com/watch?v=LY1V6UbRHFM  
 
-Close-Grip Bench Press - 3 working sets - 17.5kg
+Close-Grip Bench Press - 3 working sets - 18.25kg
 https://www.youtube.com/watch?v=nEF0bv2FW94  
 
 Alternating Dumbbell Curl - 3 working sets - 10kg  
