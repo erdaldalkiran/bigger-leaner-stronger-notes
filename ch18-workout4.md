@@ -19,13 +19,6 @@ https://www.youtube.com/watch?v=aHOudYjiB9A
 
 => Rest 1 to 2 minutes in between these sets
 
-##Calf Workout C
-Standing Calf Raise - 3 sets 12 - 15 reps 70kg  
-
-Seated Calf Raise - 3 sets 12 - 15 reps 30kg  
-
-=> Rest 1 minute in between these sets
-
 ##ABS Circuit  
 plank 1.5min  
 left plank 30 secs  
@@ -48,7 +41,8 @@ Dip(Chest Variation) - 3 working sets (weighted if possible)
 https://www.youtube.com/watch?v=EsM22ywpkpQ  
 =>Rest 3 to 4 minutes in between these sets  
 
-Incline Barbell Bench Press - Warm-up sets and then 3 sets to 8-10 reps - 17.5kg  
+Close-Grip Bench Press - 3 working sets - 18.25kg  
+https://www.youtube.com/watch?v=nEF0bv2FW94  
 
 Seated Triceps Press - 3 working sets - 22kg  
 https://www.youtube.com/watch?v=hLOl4nJlo0I 
