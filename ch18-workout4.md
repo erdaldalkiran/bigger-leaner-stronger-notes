@@ -41,7 +41,7 @@ Dip(Chest Variation) - 3 working sets (weighted if possible)
 https://www.youtube.com/watch?v=EsM22ywpkpQ  
 =>Rest 3 to 4 minutes in between these sets  
 
-Close-Grip Bench Press - 3 working sets - 18.25kg  
+Close-Grip Bench Press - 3 working sets - 17.5kg  
 https://www.youtube.com/watch?v=nEF0bv2FW94  
 
 Seated Triceps Press - 3 working sets - 22kg  
